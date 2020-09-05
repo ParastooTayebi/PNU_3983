@@ -1,7 +1,7 @@
 ### My GitHub Account
 ---
-[@parastootayebi](https://github.com/parastootayebi)
+[@parastootayebi](https://github.com/ParastooTayebi)
 
 ### My Quera profile
 ---
-[@mahdiye9sunsky](https://quera.ir/profile/mahdiye9sunsky)
+[@parastoot0011](https://quera.ir/profile/parastoot0011)
